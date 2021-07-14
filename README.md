@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Luis
-- 👀 I’m interested in videojuego
+- 👀 Me gustan los videojuegos y la musica 
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
